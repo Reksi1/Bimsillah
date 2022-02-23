@@ -1,0 +1,2 @@
+# Bimsillah
+To be rich
